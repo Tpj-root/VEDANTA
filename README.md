@@ -17,6 +17,76 @@ https://rkmath.org/wp-content/uploads/2021/07/Vivekananda-A-Biography-by-Swami-N
 
 
 ```
+Don't think you know you are
+
+
+
+
+
+
+
+Do not try and bend the spoon.
+That's impossible.
+Instead, only try
+to realize the truth.
+
+What truth?
+
+There is no spoon.
+Then you'll see that it is not the spoon
+that bends. It is only yourself.
+
+
+
+
+
+
+Do you think you are the One?
+I don't know.
+
+You know what that means?
+It's Latin.
+Means, "Know thyself."
+
+I'll let you in on a little secret.
+
+Being the One is just
+like being in love.
+
+No one can tell you you're in love.
+
+You just know it ... 
+ ... through and through.
+ Balls to bones.
+
+
+
+
+
+
+No one has ever done
+anything like this.
+
+That's why it's going to work.
+
+
+
+
+```
+
+
+
+```
+
+```
+
+
+
+
+
+
+
+```
 
  Gautama Buddha
 
